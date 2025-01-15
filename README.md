@@ -1,1 +1,1 @@
-# rednoteapp.io
+# [rednoteapp.io](https://rednoteapp.io)
